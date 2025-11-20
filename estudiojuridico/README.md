@@ -1,1 +1,0 @@
-# Estudio-Jur-dico-Barreyro
